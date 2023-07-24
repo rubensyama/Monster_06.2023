@@ -7,12 +7,14 @@ video: https://youtu.be/mYA3cjIULMc
 MOSTRADOS NO VIDEO ACIMA 
 
 👇👇
-NEW 
-- Built: 17th June 2023 
+ Monster+  
+Built: 19/07/2023
+Monster Stealth Server Files - 1.3.6 
+👇👇
 ------------------------------
-🔗 Link Mediafire : https://tinyurl.com/tx4kce88
+🔗 Link Mediafire : https://tinyurl.com/ycykfcbj
 
-🔗 Link direto : https://tinyurl.com/3cswv5km
+🔗 Link direto : https://tinyurl.com/2s3vkk6b
 
 ➖➖➖➖➖➖➖➖➖
 
